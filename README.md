@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @undefinedaeon
+- 👀 I’m interested in games, code, dev.
+- 🌱 I’m currently learning DragonRuby
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me @undefinedaeon.bsky.social
+- 😄 Pronouns: undefined
+- ⚡ Fun fact: undefined
